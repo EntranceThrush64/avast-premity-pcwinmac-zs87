@@ -1,4 +1,4 @@
-# 
+# مجاني Avast Premium Security إعدادات مسبقة لـ Mac OS | رسمي Avast Premium Security إعدادات مسبقة لـ PC Windows. مع دعم OpenVPN و سياسة عدم تسجيل البيانات — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
